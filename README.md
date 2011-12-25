@@ -1,1 +1,1 @@
-### ecylmz.com'da paylaşılan screencast'ler ve diğer dosyalar
+### ecylmz.com'da paylaşılan screencast'ler ve diğer dosyalar.
